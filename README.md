@@ -38,4 +38,4 @@ Software developer and product builder with **8+ years of experience** designing
 ### 📫 Get in Touch
 - **Portfolio / Blog:** [thekoda.net](https://thekoda.net/)
 - **LinkedIn:** [linkedin.com/in/damirlife](https://www.linkedin.com/in/damirlife/)
-- **Email:** [adm015@mail.ru](mailto:amanbayevdamir@gmail.com)
+- **Email:** [amanbayevdamir@gmail.com](mailto:amanbayevdamir@gmail.com)
